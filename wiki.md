@@ -23,9 +23,15 @@ De Bruyne was signed to City in 2015, in which he has already broke the record f
 He is seen to be as one of the best midfielders in the world, making the pairing of De Bruyne and Haaland
 one of the best duos in football history.
 
-## What's next?
-Manchester City began to take over the Premier League and now have their eyes set on the Champions League.
-
+## Top players
+-Kevin De Bruyne
+-Erling Haaland
+-Phil Foden
+-Bernardo Silva
+-Sergio Kun Aguero
+-David Silva
+-Joao Cancelo
+-Ruben Dias
 
 ## See also
 - [Resource 1](https://www.uefa.com/uefachampionsleague/)
