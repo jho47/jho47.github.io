@@ -17,7 +17,7 @@ With many recent signings this year, the team is projected to win the most prest
 The signing of Haaland was one of the biggest signings of the summer, with Manchester City desperately needing
 a striker, Haaland is seen to be the last piece of the puzzle for City, with hopes to finally win the teams first UCL.
 
-###Kevin De Bruyne
+### Kevin De Bruyne
 
 De Bruyne was signed to City in 2015, in which he has already broke the record for most club assists. 
 He is seen to be as one of the best midfielders in the world, making the pairing of De Bruyne and Haaland
